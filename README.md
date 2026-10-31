@@ -4,7 +4,7 @@
 
 <p align="center"> don't interact if you don't want your nut getting punched </p>
 
-<p align="center"> c.h is ok get ready to be ignored the entire sitting </p>
+
 
 <p align="center"> man up and ask to be friends </p>
 
